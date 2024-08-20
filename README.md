@@ -85,3 +85,4 @@
 <br> yendluri veda akash lci2023057 vedaakash vedaakashyendluri@gmail.com<br>
 <br>Tarang Agrawal lci2023013 tarangagrawal6 perfectbros145@gmail.com <br>
 <br>Shresth Sharma lcb2023054  Shresth17 shresthsharma1711@gmail.com <br>
+<br> Ranjni Singh Rajput lcb2023047 ranjnisingh8 ranjnisinghrajput@gmail.com <br>
