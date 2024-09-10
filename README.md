@@ -90,3 +90,4 @@
 <br> Ranjni Singh Rajput lcb2023047 ranjnisingh8 ranjnisinghrajput@gmail.com <br>
 <br> Sparsh Sinha LCB2023005 sparsh2347 sparshsinha11@gmail.com <br>
 <br> Goutam Dawar LCB2023050 goutam2004 goutamdawar68@gmail.com <br>
+<br> Rahul Naskar LCB2023009 rahul810050 rahul9875458880@gmail.com <br>
